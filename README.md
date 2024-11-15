@@ -1,2 +1,7 @@
 # app-dev
 My first repository
+
+### Walking Dead
+Walking Dead is about zombies or undead or what they call walkers in the movie. The series starts with Rick, the main protaganists of the series being a sheriff with his friend Shane which is a sheriff too and a "kabit" of her wife. Then there is a scene where they are trying to capture a criminals whose on a van. They put a spike strip or spike belt to put down the criminal's van. Then after the van drive into the spike strip, it stumbles and roll. Then police or sheriffs with rick and shane point their guns towards to the van, to the criminals inside it. Then the criminal go out the van slowly and shot their gun to the police, and the police or sheriff fire back. The sheriffs put criminals down one by one. Then they don't see signs of life to the criminals. Then Rick go slowly to where the criminals at then stop and face to other sheriff because he thought that all criminals are lifeless. Then suddenly one of the criminals are alive and fire his gun towards to the sheriff. Which resulted to the criminal's bullet hit rick at the left of his back. Which resulted to rick being on the hospital. Then rick is in critical condition and in coma. Then he is finally awake. He shouted for help, he called nurse but no one responded. Then he go out on his room but he is very weak. Then he see many undead and realize that he is the only one on the hospital so he decided to go out of it.
+
+Thats all I can tell because it is getting to long hehehe.
